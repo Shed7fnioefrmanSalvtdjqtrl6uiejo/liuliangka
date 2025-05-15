@@ -1,4 +1,4 @@
-**如何在美国数据卡上注册OpenAI账户？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**如何在美国数据卡上注册OpenAI账户？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 随着人工智能技术的飞速发展，OpenAI成为了许多科技爱好者和专业人士关注的重点。作为一个提供强大AI工具和服务的平台，OpenAI的API接口和模型功能吸引了无数用户。然而，要使用这些功能，首先需要注册一个账户，并绑定合适的支付方式。对于身处海外的用户来说，使用美国数据卡（American Express Card）进行注册是一种常见的方式。本文将详细介绍如何在美国数据卡上注册OpenAI账户，并分享一些实用的小贴士。
 
@@ -72,4 +72,4 @@
 
 无论你是技术小白还是资深开发者，OpenAI都能为你提供强大的支持。让我们一起探索AI世界的无限可能吧！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

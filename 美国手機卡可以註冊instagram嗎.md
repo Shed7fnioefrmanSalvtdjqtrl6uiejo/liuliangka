@@ -1,4 +1,4 @@
-**美国手机号码能否注册Instagram？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**美国手机号码能否注册Instagram？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在当今这个社交媒体高度发达的时代，Instagram已经成为全球数亿用户分享生活、表达自我的重要平台之一。无论是拍摄精美的照片还是记录有趣的视频，Instagram都为人们提供了展示个性和创意的空间。然而，对于那些身处海外的人来说，尤其是持有美国手机号码的用户，是否能够顺利注册并使用Instagram呢？这成了许多人心中的疑问。
 
@@ -24,4 +24,4 @@
 
 最后提醒大家一句：无论何时何地，都要记得遵守法律法规和社会公德，共同维护良好的网络环境。只有这样，才能让每个人都能在一个健康和谐的氛围中自由交流、互相学习！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

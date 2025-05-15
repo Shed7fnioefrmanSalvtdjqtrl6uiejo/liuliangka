@@ -1,4 +1,4 @@
-**如何在美国手机卡上注册ChatGPT？——简单几步轻松搞定[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**如何在美国手机卡上注册ChatGPT？——简单几步轻松搞定[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 随着人工智能技术的飞速发展，ChatGPT成为了许多人学习和工作的得力助手。然而，对于身处美国的用户来说，想要使用ChatGPT，首先需要一张美国的手机号码来完成注册和验证。那么，究竟该如何在美国手机卡上注册ChatGPT呢？本文将为你详细讲解这一过程。
 
@@ -71,4 +71,4 @@
 
 总之，通过以上方法，即使是初次接触美国手机卡的朋友也能轻松搞定ChatGPT的注册工作。希望这篇文章能对你有所帮助！如果你还有其他疑问，欢迎随时提问哦~
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
