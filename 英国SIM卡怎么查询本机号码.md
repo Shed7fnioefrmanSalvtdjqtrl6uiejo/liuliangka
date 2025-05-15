@@ -1,4 +1,4 @@
-# 英国SIM卡怎么查询本机号码？轻松掌握技巧[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 英国SIM卡怎么查询本机号码？轻松掌握技巧[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在英国生活或旅行，拥有一张SIM卡是必不可少的。无论是需要打电话、发短信还是使用移动数据上网，一张合适的SIM卡都能让我们的日常生活变得更加便捷。然而，不少人在拿到英国SIM卡后会遇到一个问题：**如何查询本机号码？**  
 
@@ -93,4 +93,4 @@
 
 最后再次提醒大家，如果遇到任何问题，不妨多尝试几种方法，或者直接咨询运营商客服。毕竟，耐心和细心是解决问题的关键哦！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
