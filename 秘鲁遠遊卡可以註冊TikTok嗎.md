@@ -14,6 +14,6 @@
 
 总之，秘魯遠遊卡完全可以用来注册并使用TikTok。只要你注意解决可能出现的技术障碍，并积极适应新的社交方式，就能在这个充满活力的平台上找到属于自己的乐趣。希望每位读者都能够充分利用这一工具，享受更加丰富多彩的生活！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
