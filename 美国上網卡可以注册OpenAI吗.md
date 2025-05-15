@@ -22,6 +22,6 @@ OpenAI会通过用户的IP地址来判断其所在国家或地区。如果您的
 
 最后提醒大家一句：无论选择何种途径去探索未知领域，始终要记得遵守法律法规和社会道德规范。只有这样，才能让科技进步真正造福于人类社会！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)
+![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)
