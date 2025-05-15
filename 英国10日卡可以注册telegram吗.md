@@ -1,4 +1,4 @@
-**英国10日卡可以注册telegram吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**英国10日卡可以注册telegram吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在当今这个信息爆炸的时代，社交软件已经成为了我们日常生活中不可或缺的一部分。而Telegram（电报）作为一款功能强大、安全性能极高的即时通讯工具，自然也受到了许多用户的青睐。不过，对于一些出国旅行或者短期居住在海外的人来说，可能会面临这样一个问题：如果我只有一张英国10日卡，能否顺利注册并使用Telegram呢？
 
@@ -26,4 +26,4 @@
 
 无论采取哪种方式，最重要的是始终保持积极乐观的心态，勇敢地去探索未知的世界。毕竟，每一次新的尝试都是对自己能力的一次挑战和提升。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
